@@ -1,16 +1,16 @@
-<h1>Asia Pacific Tranexamic Acid Market Research Report 2024-2030</h1><br/><p><strong>The Asia Pacific Liquid Runway Deicer market size was valued at US$ 89.4 million in 2024 and is projected to reach US$ 116.2 million by 2030, at a <strong>CAGR</strong> of 4.5% during the forecast period 2024-2030.</strong></p>
+<h1>Asia Pacific Tranexamic Acid Market Research Report 2024-2030</h1><br/><p><strong>The Asia Pacific Tranexamic Acid market size was valued at US$ 156.3 million in 2024 and is projected to reach US$ 204.7? million by 2030, at a <strong>CAGR</strong> of 4.6% during the forecast period 2024-2030.</strong></p>
  
  
  
- <p>Liquid runway deicers are chemical formulations used to prevent or remove ice and snow accumulation on airport runways, taxiways, and aprons, ensuring safe aircraft operations in cold weather conditions.</p>
+ <p>Tranexamic acid is a synthetic amino acid derivative used as an antifibrinolytic medication to treat or prevent excessive blood loss in various medical conditions and surgical procedures.</p>
  
  
  
- <p>The Asia Pacific liquid runway deicer market is experiencing moderate growth, driven by expanding air travel and increasing focus on aviation safety. China accounts for 35% of the market, followed by Japan at 25% and South Korea at 20%. In 2023, potassium acetate-based deicers dominated with a 60% market share, followed by propylene glycol-based products at 30%. The market saw an 8% increase in demand for environmentally friendly formulations with lower corrosion potential. <strong>Key players</strong> include Clariant AG (Switzerland) and Cryotech Deicing Technology (USA), collectively holding a 45% market share in the region. The industry is investing in advanced application technologies, with a 15% increase in adoption of precision spraying systems in 2023. Challenges include environmental concerns and regulatory pressures, leading to a 10% focus on developing bio-based deicer alternatives. The trend towards preventive deicing has driven a 12% growth in demand for anti-icing liquids. The market is benefiting from the expansion of airport infrastructure in emerging economies, with a 20% increase in new airport construction projects incorporating modern deicing facilities.</p>
+ <p>The Asia Pacific tranexamic acid market is growing steadily, driven by increasing surgical procedures and awareness of its effectiveness in managing bleeding disorders. Japan leads with a 30% market share, followed by China at 25% and India at 20%. In 2023, surgical applications accounted for 55% of total consumption, with gynecological uses at 25% and trauma management at 15%. The market experienced a 7% growth in demand from the cosmetic industry for skin whitening applications. <strong>Key players</strong> include Daiichi Sankyo (Japan) and Emcure Pharmaceuticals (India), holding a combined 35% market share in the region. The industry is investing in novel formulations, with a 12% increase in R&D spending on extended-release preparations in 2023. Challenges include patent expirations, leading to a 15% increase in generic competition. The COVID-19 pandemic has driven a 10% rise in demand for managing complications in severe cases. The market is benefiting from expanding healthcare access in developing countries, with an 8% growth in rural healthcare initiatives incorporating tranexamic acid in emergency kits.</p>
  
  
  
- <div><b>Download FREE Sample of this Report @ <a href="https://www.24chemicalresearch.com/download-sample/280063/asia-pacific-tranexamic-acid-market-2024-2030-720">https://www.24chemicalresearch.com/download-sample/280063/asia-pacific-tranexamic-acid-market-2024-2030-720</a></b></div>
+ <div><b>Download FREE Sample of this Report @ <a href="https://www.24chemicalresearch.com/download-sample/280062/asia-pacific-tranexamic-acid-market-2024-2030-166">https://www.24chemicalresearch.com/download-sample/280062/asia-pacific-tranexamic-acid-market-2024-2030-166</a></b></div>
  
  
  
@@ -27,6 +27,10 @@
  
  
  <p>We surveyed the Tranexamic Acid manufacturers, suppliers, distributors and industry experts on this industry, involving the sales, revenue, demand, price change, product type, recent development and plan, industry trends, drivers, challenges, obstacles, and potential risks.</p>
+ 
+ 
+ 
+ <p><img alt="" src="https://24chemicalresearch.com/assets/report-images/AsiaPacificTranexamicAcid.png" style="height:439px; width:731px" /></p>
  
  
  
@@ -102,43 +106,43 @@
  
  
  
- <p>???? ? ? CSL Limited</p>
+ <p>???? ? ? Jiangsu Wanbang Biochemical Pharmaceutical Co., Ltd.</p>
  
  
  
- <p>???? ? ? Shanghai Fosun Pharmaceutical (Group) Co., Ltd.</p>
+ <p>???? ? ? Shanxi Kangbao Biological Product Co., Ltd</p>
  
  
  
- <p>???? ? ? JK Sucralose Inc.</p>
+ <p>???? ? ? Nippon Pharmaceutical Co., Ltd</p>
  
  
  
- <p>???? ? ? Yunnan Baiyao Group Co., Ltd.</p>
+ <p>???? ? ? Hikma Pharmaceuticals PLC</p>
  
  
  
- <p>???? ? ? OlainFarm</p>
+ <p>???? ? ? Olon S.p.A.</p>
  
  
  
- <p>???? ? ? Hisun Pharmaceuticals</p>
+ <p>???? ? ? Zhejiang Huayi Pharmaceutical Co., Ltd.</p>
  
  
  
- <p>???? ? ? Pfizer Asia Pacific Pte. Ltd.</p>
+ <p>???? ? ? Sanghai Lonyer Fuels Co., Ltd</p>
  
  
  
- <p>???? ? ? Wanbang Biopharmaceuticals</p>
+ <p>???? ? ? Zydus Cadila</p>
  
  
  
- <p>???? ? ? Sun Pharmaceutical Industries Ltd.</p>
+ <p>???? ? ? Emcure Pharmaceuticals Ltd.</p>
  
  
  
- <p>???? ? ? Torrent Pharmaceuticals Ltd.</p>
+ <p>???? ? ? Micro Labs Ltd</p>
  
  
  
@@ -242,7 +246,7 @@
  
  
  
- <div><b>Get the Complete Report & TOC @ <a href="https://www.24chemicalresearch.com/reports/280063/asia-pacific-tranexamic-acid-market-2024-2030-720">https://www.24chemicalresearch.com/reports/280063/asia-pacific-tranexamic-acid-market-2024-2030-720</a></b></div>
+ <div><b>Get the Complete Report & TOC @ <a href="https://www.24chemicalresearch.com/reports/280062/asia-pacific-tranexamic-acid-market-2024-2030-166">https://www.24chemicalresearch.com/reports/280062/asia-pacific-tranexamic-acid-market-2024-2030-166</a></b></div>
  
  
  
@@ -452,7 +456,7 @@
  
  
  
- <div><b>Get the Complete Report & TOC @ <a href="https://www.24chemicalresearch.com/reports/280063/asia-pacific-tranexamic-acid-market-2024-2030-720">https://www.24chemicalresearch.com/reports/280063/asia-pacific-tranexamic-acid-market-2024-2030-720</a></b></div>
+ <div><b>Get the Complete Report & TOC @ <a href="https://www.24chemicalresearch.com/reports/280062/asia-pacific-tranexamic-acid-market-2024-2030-166">https://www.24chemicalresearch.com/reports/280062/asia-pacific-tranexamic-acid-market-2024-2030-166</a></b></div>
  
  
  
